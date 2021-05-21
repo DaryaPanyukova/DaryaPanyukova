@@ -4,7 +4,7 @@
 - I like DANCE
 - I have Tic Toc
 - Also I very mach like to drow, sing and dance. I dont really like math and informatics.
-- Follow me for more in Inst 𝓓𝓪𝓼𝓱𝓴𝓪 ✨✨✨
+- Follow me for more in Inst 𝓹𝓪𝓷𝔂𝓾𝓴𝓸𝓿𝓪_𝓭𝓪𝓼𝓱𝓪 ✨✨✨
 
 <!---
 DaryaPanyukova/DaryaPanyukova is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
